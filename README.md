@@ -1,4 +1,4 @@
-**Amanda Lima** 🥱
+**Amanda Lima* 🥱
 
 namorado: vinicius baiak 😍
 
